@@ -1,0 +1,5 @@
+DSP ALL PRACTICAL 
+
+Name: Arnav more 
+Roll no: 250078DS
+Subject: DSP PRACTICAL ACTICITY SUBMISSON 
